@@ -22,3 +22,6 @@ Os arquétipos da Morte, do Herói e do Fora de Lei são exemplos de algumas fig
 Os arquétipos nos ajudam a satisfazer algumas de nossas principais necessidades, como a necessidade de realização, pertença, independência e estabilidade.
 
 Até mesmo quando consumimos produtos e serviços, somos influênciados pelos arquétipos. Uma cerveja, por exemplo, além de “matar a sede”, também pode satisfazer a necessidade de pertencer a um grupo, já que,  para muitas das pessoas, o simples fato de sair para beber cerveja significa estar com os amigos, familiares ou colegas de trabalho. Portanto, nesse caso, a marca de cerveja que souber usar o arquétipo certo, vai conseguir transmitir essa mensagem muito melhor. Veja o case Skol para entender sobre o que eu estou falando.
+
+
+https://pt.wikipedia.org/wiki/Arqu%C3%A9tipo
